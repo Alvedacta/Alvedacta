@@ -1,4 +1,4 @@
-👋 Hi, I'm Alvedacta
+👋 Hi, I'm Alvin Ricksy
 
 💻 Aspiring Software Engineer | 💡 Tech Enthusiast | 🔐 Encryption & Coding Lover
 
